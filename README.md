@@ -7,11 +7,6 @@ This course combines advanced topics in data ethics, critical data studies, publ
 Graduate Course, 3 credits, Spring 2023. Tuesday, 3:30-6:00 pm (in-person). Location: Dell 1 104
 
 
-Jess Reia, Ph.D.(they/them) 
-Elson, 400 Brandon Ave, Room 189B
-reia@virginia.edu 
-Office hours: Tuesday and Thursday 2:00-3:00 pm or by appointment. 
+Jess Reia, Ph.D.(they/them) | reia@virginia.edu | Office hours: Tuesday and Thursday 2:00-3:00 pm or by appointment. Location: Elson, 400 Brandon Ave, Room 189B.
 
-TA: Luwei Zeng 
-lz6ct@virginia.edu 
-Office hours: (Tuesday 2:00-3:00 om, online - please email if you are comming)
+TA: Luwei Zeng | lz6ct@virginia.edu | Office hours: (Tuesday 2:00-3:00 om, online - please email if you are comming)
