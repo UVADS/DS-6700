@@ -1,4 +1,4 @@
-# DS6700
+# DS6700 - Data Ethics, Policy and Governance
 
 **Class Description** 
 
